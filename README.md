@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @global65
 - 👀 I’m interested in freelancing and Real estate
 - 🌱 I’m currently learning computer science 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking forward to contributing positively to Githubs community.
 - 📫 How to reach me, contact me via gmail on globallytogood@gmail.com or via mobile number (+2349159878504)
 
 <!---
